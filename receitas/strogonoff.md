@@ -30,3 +30,5 @@
 - 1 xícara (chá) de leite (para umedecer as bolachas)
 - 1 caixa de creme de leite (para o ganache)
 - 200g de chocolate ao leite ou meio amargo
+
+Muito bom
